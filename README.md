@@ -1,0 +1,1 @@
+Dummy daily notes
